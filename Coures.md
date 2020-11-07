@@ -63,3 +63,9 @@ Course:
 https://mega.nz/folder/ipkzVbxY#YmRFYvZeKEHl9SHz-eRQsQ
 
 
+huge hack pack:
+
+https://mega.nz/folder/mW4jBYaA#lTcEftfvdHDoufJWPf38jA
+
+https://mega.nz/folder/zMN00AKJ#V9ZTkIgJiE03YJDDwHe9Jw
+
